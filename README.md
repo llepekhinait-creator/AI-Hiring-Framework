@@ -33,4 +33,4 @@ I want to work with founders in close connection, supporting them and going deep
 
 If you are a founder building a calculated team, or an investor looking to de-risk your portfolio’s hiring strategy:
 
-* **LinkedIn:** [Visit My LinkedIn Profile]([https://linkedin.com](https://www.linkedin.com/in/liliya-lepekhina-it/))
+* **LinkedIn:** [Visit My LinkedIn Profile](https://www.linkedin.com/in/liliya-lepekhina-it/)
