@@ -5,16 +5,13 @@
 ---
 
 ### 🎥 The Manifesto
-
-*Drag and drop your video file right here*
-
 ---
 
 ### 💡 The Core Reality
 
 For a long time, I have wanted to just be my authentic self in my videos here. My English is still a work in progress. I can easily communicate with founders, investors, and candidates using my pre-prepared frameworks in English. 
 
-But when it comes to videos, I want to share my actual flow of thoughts and insights. Trying to translate it in my head while filming just changes the energy — **I want to give you the pure clarity of my reflections.**
+But when it comes to videos, I want to share my actual flow of thoughts and insights. Trying to translate it in my head while filming just changes the energy - **I want to give you the pure clarity of my reflections.**
 
 So, I did a little tech *“magic”* and created this video. It is me on screen, but the subtitles and the voiceover are fully in English, powered by some great modern AI tools. 
 
